@@ -1,0 +1,6 @@
+---
+title: "On The Honors Of The Dead, VI"
+author: notavailable
+---
+
+Some would make of these words an open invitation to the study of sorcerous necromancy, but such is not my intent. For it brings power over the dead, one very easy to abuse, for the dead are mightier than we. This danger Vivec teaches, warning, "Do not abuse your powers or they will lead you astray. They will leave you like rebellious daughters. They will lose their virtue. They will become lost and resentful and finally become pregnant with the seed of folly." It is easy to slip into cruelty and indifference toward all the dead and to view the remains of one’s ancestors in the same way as the corpse of a beast. Why else do necromancers hide in their lairs and have no qualms to slay any who enter? This practice is to be pursued only ever in the company of honorable mer of strong will who understand well what I lay down in this work, for example, the noblest of the Telvanni, who watch always for the flaws of the other and keep each other from them by threats and violence. It is the duty of my holy inquisition to discern who is worthy and who is not.

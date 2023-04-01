@@ -1,0 +1,6 @@
+---
+title: "On The Honors Of The Dead, III"
+author: notavailable
+---
+
+"The ghost gilds with glory." The spirits of the dead become the glory of their house, and the honor of their house falls on them. All those given proper burial rites pledge themselves in service to their kin, or are pledged by them, if they offended their oaths to them in life. For some, their remains are raised to protect their tombs. These we call bonewalkers. The rites of their creation are very unlike those of profane necromancers, as I have had the occasion to witness both in my years of service, for the necromancer makes the flesh his slave with magic bindings and force of will, while the bonewalker smith invokes the power of the Three to sustain it while adorning it with flowers and gemstones for the glory of its house. Our honored dead fulfill their duty in another way as well: that of lending their strength to the Great Ghostfence. Our dead have the honor of defending their kin against the wretched Sharmat, sharing directly in the work of Lord Vivec. Who could want more in death, and how could anyone, seeing this, deem this practice similar in any way to enslavement to the whims of foul skulking necromancers?

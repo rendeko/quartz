@@ -1,0 +1,6 @@
+---
+title: "On The Honors Of The Dead, II"
+author: notavailable
+---
+
+"Death does not diminish." Unlike the outlanders, our dead are not lost to us, to be contacted only by the work of esoteric wizards and warlocks studying the necromantic arts, for grief is powerful in inclining souls to evil. Rather, any individual may call upon their ancestors, either at a family shrine or tomb (as was once most common), or at a local temple where some remains are kept, or at the great catacombs of Necrom where almost all dead go, in full or in part, as consolation against the chill of the mortal world. We receive from our ancestors the constant protection of their magic, their advice and guidance, and their blessings. Though some Dunmer are lost by accidents or malice which sunder them from their proper funeral, these are always dreaded occasions which all work to prevent, for it leaves a gaping hole in the wisdom of our ancestors which cannot be filled. Such funeral rites involve the spirit of the dead pledging itself to continue the oaths to its kin by which it was bound in life, sharing their knowledge, power, and secrets with future generations, though the precise fulfillment of these oaths take various forms depending on the need of the family and the age. These I shall lay out in my next discourse.

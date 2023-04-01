@@ -1,0 +1,6 @@
+---
+title: "On The Honors Of The Dead, IV"
+author: notavailable
+---
+
+Some outlanders would have such disrespect for our ancestors that they would ask, "Why should we care about the honor of your kin?" And I say that even they ought to care for their own lives. For spirits offended by the mistreatment of their remains go mad over time, as any foreign visitor to our tombs will confess in fear. A disturbed spirit lashes out at any who approach it, and when bound in a bonewalker given improper honors, it attempts to attack all things around it, not only outsiders as it is often bid to do, but also its own kin, from whose harm it is prevented only by oath. A mad bonewalker released from its tomb is a danger to all mortal life, and it is the occasional duty of Necrom ordinators to pacify their spirits and return them to their proper place, as Vivec conquered the bonewalker of House Mora with three kisses of respect. The spirits of outlanders are rarely seen in Morrowind unless bound by the work of sorcerous necromancers. These have no place wandering free in our land and are banished by the sword, for reasons I shall expound next.
